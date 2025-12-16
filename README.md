@@ -114,7 +114,9 @@ MIT License
 ## Author
 
 GitHub: https://github.com/Damahand
+
 Public contact (email):cannier-births-0n@icloud.com 
+
 Public contact (X): https://x.com/marciltherese
 
 ---
